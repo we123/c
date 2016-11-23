@@ -22,7 +22,6 @@
 <a href="http://wi.vooc.space/dd/" target="_blank">网址一</a> 　 
 <a href="http://wi.vooc.space/dd/" target="_blank">网址二</a> 　 
 <a href="http://wi.vooc.space/dd/" target="_blank">网址三</a></p>
-<p>  • 协助三退QQ : 507388781</p>
 <p>◎   • PDF电子书：  
 <a href="http://wi.vooc.space/p/" target="_blank">网址一</a> 　 
 <a href="http://wi.vooc.space/p/" target="_blank">网址二</a> 　 
@@ -35,7 +34,6 @@
 <a href="http://wi.vooc.space/f/" target="_blank">网址一</a> 　 
 <a href="http://wi.vooc.space/ff/" target="_blank">网址二</a> 　 
 <a href="http://wi.vooc.space/f/" target="_blank">网址三</a></p>
-<p>  • 索取翻墙软件QQ：507388781</p>
 <p>◎ </span>  • 每 日 新 闻：  
 <a href="http://wi.vooc.space/day/" target="_blank">网址一</a> 　 
 <a href="http://wi.vooc.space/day/" target="_blank">网址二</a> 　 
